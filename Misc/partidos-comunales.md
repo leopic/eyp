@@ -10,6 +10,11 @@ http://www.tse.go.cr/images/autenticolabradordecoronado.jpg
 - Participaron en la eleccion de Regidores en el 2006
   logrando elegir al presidente del partido, Carlos Manuel
   Rodriguez Murillo como regidor.
-
+- Alineados con el 'agrarismo':  **es un movimiento de masas
+  en el cual el campesinado (personas que trabajan en la
+  agricultura) participó activamente a través de diferentes
+  asociaciones agrarias interclasistas desde el siglo XIX
+  en distintos países, procurando una justa distribución
+  de la tierra.**
 
 http://www.tse.go.cr/autenticolabradordecoronado.htm
